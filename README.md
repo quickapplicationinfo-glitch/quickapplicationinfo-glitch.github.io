@@ -1,0 +1,1 @@
+# quickapplicationinfo-glitch.github.io
